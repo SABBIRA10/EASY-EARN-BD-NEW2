@@ -1,1 +1,0 @@
-# EASY-EARN-BD-NEW2
